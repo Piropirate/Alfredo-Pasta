@@ -1,0 +1,1 @@
+Alfredo sauce pasta, commonly known as white sauce pasta is an italian pasta dish of fresh fettuccine tossed with butter and Parmesan cheese. The dish is named after Alfredo di Lelio, who featured the dish at his restaurant in Rome.
